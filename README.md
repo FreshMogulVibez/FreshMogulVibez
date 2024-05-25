@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning currently learning how to code.
 - 💞️ I’m looking to collaborate on developing projects that improve skills and make me better coder
 - 📫 How to reach me exec@freshmogulvibez.com
-- 😄 Pronouns: Him
+- 😄 Pronouns:I Am Him
 - ⚡ Fun fact: I drink sparkling water my guts get the bubbles :) 
 
 <!---
